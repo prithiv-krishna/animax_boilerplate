@@ -1,1 +1,0 @@
-# animax_library
